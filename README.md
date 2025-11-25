@@ -1,4 +1,4 @@
-# Hunger-Games-
+# Hunger-Games
 
 ---
 
